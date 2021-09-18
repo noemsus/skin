@@ -1,6 +1,5 @@
 # *Skins that I use*
 
-Credits are under the skins.
 
 # [BTMC - Freedom Dive [DT]- by BTMC, JesusOmega, TofuMang, MyniMyxii and Kazu](https://drive.google.com/file/d/1qhgBf6u3fxpKlWRKNc5hEk3VwajkluPv/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/887009515206238232/888757214809038929/Preview1.png)
